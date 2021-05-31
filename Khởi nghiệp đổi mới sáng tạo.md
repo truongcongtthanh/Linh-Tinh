@@ -99,7 +99,18 @@ Liên kết sáng tạo
 - Cần thực hành làm gì để hiện thực hoá vấn đề?
     - Thấy 1 trang toàn chữ -> dành 10s để quan sát trước khi đọc
     - Bình tĩnh, chậm rãi khi nói chuyện, hít 1 hơi thật sâu rồi mới bắt đầu. Thần thái ung dung chậm rãi
-    - Tìm hiểu "Làm sao để đặt câu hỏi hay?", "làm sao để có một tư duy mở?"
+    - Tìm hiểu "Làm sao để đặt câu hỏi hay?", "làm sao để có một tư duy mở?", "Thế nào là một câu hỏi hay?", "quy chuẩn nào để đo lường điều đó"
+    - Đặt câu hỏi dựa trên những gì mình chưa biết
+    - "Có cách nào khác giải thích cái đó không"
+    - "Tại sao lại làm được như vậy"
+    - Một câu hỏi hay là một câu hỏi giải quyết được nhiều vấn đề mà mình đang thắc mắc
+    - 
 
+## 2. Cơ bản tài chính, tiếp thị
+![](https://i.imgur.com/8foBTBw.png)
+- Option 2 = 5, 1 = 4 = 6, option 3 thấp nhất
+
+![](https://i.imgur.com/WNWCu4P.png)
+- 
 
 
